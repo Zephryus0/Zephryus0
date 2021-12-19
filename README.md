@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zephryus0
+- 👀 I’m interested in gaming and avatar making :D
+- 🌱 I’m currently learning avatar making for vrc
+- 📫 How to reach me Zephryus#5326
+---
